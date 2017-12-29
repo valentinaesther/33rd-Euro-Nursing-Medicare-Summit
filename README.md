@@ -1,0 +1,2 @@
+# 33rd-Euro-Nursing-Medicare-Summit
+Euro Nursing 2018 is a three days event includes workshops, symposiums and special keynote sessions conducted by eminent and renowned speakers who excel in the field of Nursing and Healthcare. This Euro Nursing 2018 Conference also encourages the active participation of young students, upcoming researchers and budding scientists as we are hosting Poster Award Competition and Young Research Forum at the conference venue.
